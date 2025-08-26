@@ -1,0 +1,1 @@
+# 2025-_KKP_PZPI-22-5_Zakharchenko_Y_V
